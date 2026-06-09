@@ -1,4 +1,4 @@
-
+Experience rivals like never before with rivals Scripts new, the #1 Script. Includes auto-farm and undetectable for unbeatable performance.
 
 
 
